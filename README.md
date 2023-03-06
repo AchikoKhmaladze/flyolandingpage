@@ -1,1 +1,1 @@
-visit site : https://khmalaa.github.io/flyolandingpage/
+visit site : https://AchikoKhmaladze.github.io/flyolandingpage/
